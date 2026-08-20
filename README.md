@@ -38,6 +38,6 @@ A lower factory quotation doesn't automatically mean a lower project cost.
 
 Consider transportation, foundations, installation, utilities, permits, insulation, interior finishes, and other site-related expenses.
 
-For buyers comparing container and prefab building solutions, Container House Group can provide customized options based on project requirements.
+For buyers comparing container and prefab building solutions, [Container House Group](https://containerhousegroup.com) can provide customized options based on project requirements.
 
 The best choice is the one that fits the entire project—not simply the one with the lowest price per square meter.
